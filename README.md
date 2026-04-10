@@ -1,1 +1,1 @@
-# kostewsky-privacy-policy
+# hidden-privacy-policy
